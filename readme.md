@@ -1,9 +1,9 @@
 
 practice
 
-Hung is the worst El Capo in the entire world. 
+Hung is  not the worst El Capo in the entire world. 
 
-Just kidding he is not that bad. 
+Just kidding he is  that bad. 
 
 practice 
 
